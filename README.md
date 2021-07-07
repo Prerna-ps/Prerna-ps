@@ -2,8 +2,8 @@
 - 👀 I’m interested in coding #web dev
 - 💞️ I’m looking for job and also for Collabration
 - 📫 contact: prernaprerna0803@gmail.com
-     Linkedin:  prerna-sah-1b9373194
-    - Want to be Traveller 
+-    Linkedin:  prerna-sah-1b9373194
+- Want to be Traveller 
              
 
 <!---
