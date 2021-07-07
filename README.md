@@ -3,7 +3,7 @@
 - 💞️ I’m looking for job and also for Collabration
 - 📫 contact: prernaprerna0803@gmail.com
      Linkedin:  prerna-sah-1b9373194
-     want to be Traveller 
+    - Want to be Traveller 
              
 
 <!---
